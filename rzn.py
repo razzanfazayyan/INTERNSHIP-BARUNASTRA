@@ -1,0 +1,1 @@
+magang zoom 1
